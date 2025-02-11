@@ -91,6 +91,20 @@ Yes, Pocket Option is a legitimate platform used by traders worldwide. Here’s 
 - **Cryptocurrencies**: Bitcoin, Ethereum, Litecoin, and other digital assets for traders seeking high-volatility opportunities.
 
 ---
+## Restricted Countries for Pocket Option
+
+According to publicly available sources and typical regulatory constraints, Pocket Option may restrict or prohibit services to residents of the following countries (this list is subject to change):
+
+- United States
+- European Economic Area (EEA)
+- United Kingdom
+- Canada
+- Australia
+- Israel
+- Japan
+
+*Note: The above list may not be exhaustive. For the latest and most accurate information, please consult the official Pocket Option website or contact their support team.*
+
 
 ## ❓ Pocket Option Promo Code FAQ
 
