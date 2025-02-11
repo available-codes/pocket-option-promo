@@ -26,7 +26,8 @@ The trading website [Pocket Option](https://u1.shortink.io/register?utm_campaign
 ## 🚀 How to Activate Pocket Option Promo Code
 
 1. **Sign Up or Log In**  
-   - If you’re new, create a Pocket Option account. If you’re an existing user, just log in.
+   - If you’re new, create a [Pocket Option](https://pocketoption.com)
+ account. If you’re an existing user, just log in.
 
 2. **Go to the Deposit Section**  
    - Look for the “Finance” or “Deposit” tab.  
